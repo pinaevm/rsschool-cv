@@ -1,1 +1,1 @@
-# rsschool-cv
+https://pinaevm.github.io/rsschool-cv/cv
